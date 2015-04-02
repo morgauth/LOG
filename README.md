@@ -1,0 +1,2 @@
+# LOG
+Lord Of Galactum
